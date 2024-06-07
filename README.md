@@ -3,7 +3,7 @@
 - 🔋 Electrical and Electronic Engineering
 - 🏫 University of Auckland
 - 😄 Pronouns: She/Her
-❤️🩷🧡💛💚💙🩵💜🤎🖤🩶🤍
+- ❤️🩷🧡💛💚💙🩵💜🤎🖤🩶🤍
 - 😶‍🌫️ Current Situation: 
 - 💞️ I’m currently making a new game with my boyfriend
 - 👻 Like a kind of Haunting Game
