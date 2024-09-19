@@ -1,10 +1,16 @@
-- 🦄 About me: 
+- 🦄 About me:
+- 
 - 🧙‍♀️ @wwwM00Ncom
 - 🔋 Electrical and Electronic Engineering
 - 🏫 University of Auckland
 - 😄 Pronouns: She/Her
+- 
 - ❤️🩷🧡💛💚💙🩵💜🤎🖤🩶🤍
-- 😶‍🌫️ Current Situation: 
+- 
+- 😶‍🌫️ Current Situation in EEE/CSE:
+- 💞️ Studying so hard to be a fantastic EE Engineer
+- 
+- 😶‍🌫️ Current Situation in SE: 
 - 💞️ I’m currently making a new game with my boyfriend
 - 👻 Like a kind of Haunting Game
 
